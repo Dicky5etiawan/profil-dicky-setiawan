@@ -1,2 +1,0 @@
-# profil-dicky-setiawan
-| welcome
